@@ -5,6 +5,7 @@
 - 📫 Discord - BeeXD#7777 
 - 🌝 Instagram - https://www.instagram.com/_notomkar
 
+[![Discord profile](https://discord.c99.nl/widget/theme-3/852751562677157920.png)](https://discord.com/users/852751562677157920)
 
 
 Just a weeb who likes to chat in discord
